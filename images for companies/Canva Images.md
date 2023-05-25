@@ -2,4 +2,4 @@
 
 [View logo gitbuilt on discord](https://cdn.discordapp.com/attachments/1103863948870168616/1111110779513614386/GitBuilt_1.png)
 
-[View logo github on slack](https://files.slack.com/files-pri/T0475B3RXUN-F058Z6T22TZ/gitbuilt__1_.png)
+
