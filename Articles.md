@@ -3,3 +3,4 @@
 [10 Proven Strategies for Building a Successful Startup](https://docs.google.com/document/d/1nhLXFUBSgnjrQtaveRaaR3HGr546dx8JBVYJutru4q4/edit?usp=sharing)
 
 [Marketing strategies](https://docs.google.com/document/d/1Q7_01_arccXW0Zg2S31V4o_yVjy33MSOvyWn2Ahj7Gk/edit)
+(5 steps) https://docs.google.com/document/d/1qYuQbxZBL7gZeWOPSQfoFFmVWjtUzkWVKVkLihvChVU/edit?usp=sharing
