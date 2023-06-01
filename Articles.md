@@ -10,3 +10,4 @@
 
 [Done Josh Harnessing the Power of Articles: How Quality Content Can Drive More Leads to Your Website](https://docs.google.com/document/d/1fPQAcuUq23ushLi5-JoJRtZpGzxpqSR6w7CP77m3frk/edit)
 
+[Done Marcell Doe - Winning the Market: Communication Strategies to Boost User Engagement and Driving Sales](https://docs.google.com/document/d/1XeUXYAOTuH9udqlhemdMztm_3KoQ3rfd_s2TgeqmbIU/edit?usp=sharing)
