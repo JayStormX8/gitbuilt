@@ -3,3 +3,5 @@
 [Done Drithi - The 10 BEST Niche Markets to Start Your Start-Up in](https://docs.google.com/document/d/13JLP8NXOuYpBI27BHfg3LrqMdGQ-NkcXZJzbbEIAlcM/edit)
 
 [Done Drithi - The 5 BEST Ways to MARKET Your Start-Up Company](https://docs.google.com/document/d/1UJAebpHNI9_QxN5jVUGd730GkfNLJpJE3Y-0WyXkAOk/edit)
+
+[Harnessing the Power of Articles: How Quality Content Can Drive More Leads to Your Website](https://docs.google.com/document/d/1fPQAcuUq23ushLi5-JoJRtZpGzxpqSR6w7CP77m3frk/edit)
