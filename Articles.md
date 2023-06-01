@@ -4,4 +4,9 @@
 
 [Done Drithi - The 5 BEST Ways to MARKET Your Start-Up Company](https://docs.google.com/document/d/1UJAebpHNI9_QxN5jVUGd730GkfNLJpJE3Y-0WyXkAOk/edit)
 
-[The Top 5 Common MISTAKES of a Founder](https://docs.google.com/document/d/13ZrFQVLWvv8zkOF32D7FmQ3bqZwFxhXN5sXCzCZ6Md0/edit?usp=sharing) 
+[Done Drithi The Top 5 Common MISTAKES of a Founder](https://docs.google.com/document/d/13ZrFQVLWvv8zkOF32D7FmQ3bqZwFxhXN5sXCzCZ6Md0/edit?usp=sharing)
+ 
+[Done Rami Mahmoud - How to Successfully Start a Start-Up Through Effective Optimization Techniques](https://docs.google.com/document/d/10LhsiRhydo5AX9XqoHbxAKCMD9p5RowR/edit)
+
+[Done Josh Harnessing the Power of Articles: How Quality Content Can Drive More Leads to Your Website](https://docs.google.com/document/d/1fPQAcuUq23ushLi5-JoJRtZpGzxpqSR6w7CP77m3frk/edit)
+
