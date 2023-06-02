@@ -11,3 +11,7 @@
 [Done Josh Harnessing the Power of Articles: How Quality Content Can Drive More Leads to Your Website](https://docs.google.com/document/d/1fPQAcuUq23ushLi5-JoJRtZpGzxpqSR6w7CP77m3frk/edit)
 
 [Done Marcell Doe - Winning the Market: Communication Strategies to Boost User Engagement and Driving Sales](https://docs.google.com/document/d/1XeUXYAOTuH9udqlhemdMztm_3KoQ3rfd_s2TgeqmbIU/edit?usp=sharing)
+
+[Done Marcell Doe - Mastering the Art of Startup Pitching: Strategies to Captivate and Secure Investor Support](https://docs.google.com/document/d/1x5Ib6HWK2amNRP20vQX0NqXpFAlnTzdFq9zHP1H4Ji4/edit?usp=sharing)
+
+[Done Marcell Doe - The Ultimate Beginner's Guide to SEO: Unleash Your Website's Potential ](https://docs.google.com/document/d/1Wge0R6u4T1VWuMt-pSUIszuAPPqQVwzKO2qTzJrAQJ8/edit?usp=sharing)
