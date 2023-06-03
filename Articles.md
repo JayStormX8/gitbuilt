@@ -12,6 +12,9 @@
 
 [Done Marcell Doe - Winning the Market: Communication Strategies to Boost User Engagement and Driving Sales](https://docs.google.com/document/d/1XeUXYAOTuH9udqlhemdMztm_3KoQ3rfd_s2TgeqmbIU/edit?usp=sharing)
 
+[Done Josh Understanding User Intent: The Key to Capturing Leads Effectively](https://docs.google.com/document/d/1r7nompSxV9tQM7tN94mESJbhvbpTSYSn9xZ0oy5uJ9c/edit)
+
 [Done Marcell Doe - Mastering the Art of Startup Pitching: Strategies to Captivate and Secure Investor Support](https://docs.google.com/document/d/1x5Ib6HWK2amNRP20vQX0NqXpFAlnTzdFq9zHP1H4Ji4/edit?usp=sharing)
 
 [Done Marcell Doe - The Ultimate Beginner's Guide to SEO: Unleash Your Website's Potential ](https://docs.google.com/document/d/1Wge0R6u4T1VWuMt-pSUIszuAPPqQVwzKO2qTzJrAQJ8/edit?usp=sharing)
+
