@@ -18,3 +18,4 @@
 
 [Done Marcell Doe - The Ultimate Beginner's Guide to SEO: Unleash Your Website's Potential ](https://docs.google.com/document/d/1Wge0R6u4T1VWuMt-pSUIszuAPPqQVwzKO2qTzJrAQJ8/edit?usp=sharing)
 
+[Demystifying Google's Page Ranking Algorithm: How Your Website Ranks on the SERPs](https://docs.google.com/document/d/1L3w5nraQ8kggbufIzU6SoM_M1OcxCItCbNIIvh2diGs/edit)
