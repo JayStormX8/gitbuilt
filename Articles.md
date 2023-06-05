@@ -18,3 +18,8 @@
 
 [Done Marcell Doe - The Ultimate Beginner's Guide to SEO: Unleash Your Website's Potential ](https://docs.google.com/document/d/1Wge0R6u4T1VWuMt-pSUIszuAPPqQVwzKO2qTzJrAQJ8/edit?usp=sharing)
 
+[Caleb Fisher - How a Startup Company can use Modern Marketing Software to be More Successful in 5 Different Ways](https://docs.google.com/document/d/1puFGAUhzSdLfkEqV88OzBHZhw3FlQe8pSjtoT2huVDU/edit?usp=sharing)
+
+[Caleb Fisher - Strategies for Startups to Generate More Funding](https://docs.google.com/document/d/1C4YeLjFjkNUyfhpwUHV7S6X6TPfwWCeHwPU3fnEB17s/edit?usp=sharing)
+
+[Caleb Fisher - Boosting Brand Awareness:A Guide to Reaching Your Relevant Market](https://wallawallauniversity-my.sharepoint.com/:w:/g/personal/caleb_fisher_wallawalla_edu/ESg0RP6_O_BBrsleNH3rjjcBHDIccTIl9WUk12v8CPbagg?e=ATLEon)
