@@ -18,3 +18,4 @@
 
 [Done Marcell Doe - The Ultimate Beginner's Guide to SEO: Unleash Your Website's Potential ](https://docs.google.com/document/d/1Wge0R6u4T1VWuMt-pSUIszuAPPqQVwzKO2qTzJrAQJ8/edit?usp=sharing)
 
+[Done Lauren VanderLaan - Skyrocket Your Website's Visibility: Unveiling the Secrets of Effective SEO](https://docs.google.com/document/d/1hxHmHZK7k9Yd0NgTUC6d9xB_JefQpgyXCM70ahEybVE/edit?usp=sharing)
