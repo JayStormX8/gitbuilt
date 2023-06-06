@@ -22,4 +22,7 @@
 
 [Caleb Fisher - Strategies for Startups to Generate More Funding](https://docs.google.com/document/d/1C4YeLjFjkNUyfhpwUHV7S6X6TPfwWCeHwPU3fnEB17s/edit?usp=sharing)
 
-[Caleb Fisher - Boosting Brand Awareness:A Guide to Reaching Your Relevant Market](https://wallawallauniversity-my.sharepoint.com/:w:/g/personal/caleb_fisher_wallawalla_edu/ESg0RP6_O_BBrsleNH3rjjcBHDIccTIl9WUk12v8CPbagg?e=ATLEon)
+[Done Josh -Demystifying Google's Page Ranking Algorithm: How Your Website Ranks on the SERPs](https://docs.google.com/document/d/1L3w5nraQ8kggbufIzU6SoM_M1OcxCItCbNIIvh2diGs/edit)
+
+[Done Lauren - VanderLaan - Skyrocket Your Website's Visibility: Unveiling the Secrets of Effective SEO](https://docs.google.com/document/d/1hxHmHZK7k9Yd0NgTUC6d9xB_JefQpgyXCM70ahEybVE/edit?usp=sharing)
+
